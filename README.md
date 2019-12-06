@@ -8,8 +8,6 @@
 （观众下载无法使用）
 
 备用观众版下载地址如下<br>
-nrxl.xyz<br>
-jdip.xyz<br>
 bywd.xyz<br>
 5geg.xyz<br>
 vjas.xyz<br>
