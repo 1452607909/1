@@ -1,10 +1,10 @@
-# 初见最新下载地址（2019年11月13日更新）
+# 初见最新下载地址（2019年11月23日更新）
 
 ### 点击以下链接进入下载页：
 ### [smtt.xyz](http://smtt.xyz)
 ### [2y3k.xyz](http://2y3k.xyz)
 ### [grfq.xyz](http://grfq.xyz )<br> 
-### 主播版下载地址 [037i.xyz](http://037i.xyz )
+### 主播版下载地址 [vb7a.xyz](http://vb7a.xyz )
 （观众下载无法使用）
 
 备用观众版下载地址如下<br>
@@ -21,10 +21,6 @@ z0ih.xyz<br>
 0m9c.xyz<br>
 
 备用主播版下载地址如下<br>
-dau5.xyz<br>
-ex05.xyz<br>
-1eh0.xyz<br>
-vb7a.xyz<br>
 zspk.xyz<br>
 glvg.xyz<br>
 3t6h.xyz<br>
